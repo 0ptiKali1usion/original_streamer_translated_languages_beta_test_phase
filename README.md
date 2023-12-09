@@ -11,5 +11,5 @@ now you know the premise.
 
 (i do not expect much. i don't know how to ask for help the right way. promote the word that i need help, the right way. and i certainly do not know how to publish an autobiographical video love story (a romance novel about loving video. that's a genre, right???)
 but i hope for world peace. and i hope for help getting us there. and if we make this readable, that's a better attempt at world peace than i have ever seen in my lifetime. truthfully. and i met the dalai lama. seriously.
-take care.
+take care.)
 -ZTA/JJ/01
